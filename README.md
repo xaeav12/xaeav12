@@ -14,9 +14,10 @@
 
 Did you already disagree with me? Cancel culture can be addressed one of two ways.
 
-Yes, I wrote a [zine]("https://www.dropbox.com/s/pp5vrbi5xsfvhlp/A%20Bipolar%20Anthem.pdf?dl=0") about Hannah Montana, Best of Both Worlds: Bipolar Anthem & ; sometimes I did indeed perform it for others on a spoken basis.
+Yes, I wrote a zine available as a QUICKER, FREE read NOW at my dropbox snake link https://www.dropbox.com/s/pp5vrbi5xsfvhlp/A%20Bipolar%20Anthem.pdf?dl=0 about Hannah Montana, Best of Both Worlds: Bipolar Anthem & ; sometimes I did indeed perform it for others on a spoken basis.
 
-[XAEAV12 Manifesto]("https://www.dropbox.com/s/whuocjiylx8v5sw/xarshall%20xathers%20apology.pages?dl=0") published for 90.3 KEXP, Seattle/ KEXP.ORG📻
+XAEAV12 Manifesto https://www.dropbox.com/s/whuocjiylx8v5sw/xarshall%20xathers%20apology.pages?dl=0
+published for 90.3 KEXP, Seattle/ KEXP.ORG📻
 
 
 & yeah i think my resume is too obnonxious to place here, so i won't. for now.
