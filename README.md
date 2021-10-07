@@ -1,6 +1,8 @@
 ### Hi there 👋
 
 <!--
+secret text: congratulations, you have found the goblin
+-->
 **xaeav12** is a ✨ _special_ ✨ compisition because its artificially intelligent.
 
 -  I’m currently working on ...🔭
@@ -10,8 +12,6 @@
 -  Ask me about ...💬
 -  How to reach me: ... a small leaflet like in Zork, maybe?📫
 -  Pronouns: elle, the
--->
-
 Did you already disagree with me? Cancel culture can be addressed one of two ways.
 
 Yes, I wrote a <a href="https://www.dropbox.com/s/pp5vrbi5xsfvhlp/A%20Bipolar%20Anthem.pdf?dl=0">zine</a> available as a QUICKER, FREE read NOW at my dropbox snake link about Hannah Montana, Best of Both Worlds: Bipolar Anthem & ; sometimes I did indeed perform it for others on a spoken basis.
