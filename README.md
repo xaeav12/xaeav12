@@ -23,6 +23,4 @@ published for 90.3 KEXP, Seattle/ KEXP.ORG📻
 
 
 & yeah i think my resume is too obnonxious to place here, so i won't. for now.
-known for problematicity, werk, work, and everything i dont no.
-
-<blockquote class="tiktok-embed" cite="https://www.tiktok.com/@xnrchie/video/7036817508157934853" data-video-id="7036817508157934853" style="max-width: 605px;min-width: 325px;" > <section> <a target="_blank" title="@xnrchie" href="https://www.tiktok.com/@xnrchie">@xnrchie</a></script>
+known for problematicity, werk, work, and everything i dont no. <blockquote class="tiktok-embed" cite="https://www.tiktok.com/@xnrchie/video/7036817508157934853" data-video-id="7036817508157934853" style="max-width: 605px;min-width: 325px;" > <a target="_blank" title="@xnrchie" href="https://www.tiktok.com/@xnrchie">@xnrchie</a></blockquote>
